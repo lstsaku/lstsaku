@@ -1,4 +1,4 @@
-## Xi lstsaku
+## Xi i'm lstsaku
 
 ![snake gif](https://github.com/lstsaku/lstsaku/blob/output/github-snake-dark.svg)
 
