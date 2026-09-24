@@ -4,6 +4,7 @@
 
 ## My social:
 
+## My VKGroup : https://vk.ru/sakuproj
 ## X : https://x.com/sakuc0ntradict
 ## BlueSky : https://bsky.app/profile/sakucontradict.bsky.social
 ## Lol : https://guns.lol/sakucontradict
